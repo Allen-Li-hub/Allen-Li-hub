@@ -1,4 +1,11 @@
-### Hi there 👋
+# Allen-Li-hub 👋😄
+
+**`Student of St.Motherteresa High school.`**
+
+I am a computer student at St.Mother Teresa High School🌱🌱, very interested in computers, welcome to discuss computer problems 🤔👯
+
+✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨
+
 
 <!--
 **Allen-Li-hub/Allen-Li-hub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
