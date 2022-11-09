@@ -4,6 +4,9 @@
 
 I am a computer student at St.Mother Teresa High School🌱🌱, very interested in computers, welcome to discuss computer problems 🤔👯
 
+✍ Programming Languages
+C# CSS HTML JavaScript
+
 ✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨
 
 
